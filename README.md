@@ -1,0 +1,1 @@
+# GAGARIN_H_OS-LQ1
